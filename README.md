@@ -1,2 +1,2 @@
-hii
-zizis mu vibesaite
+WEBSITE BY LAMYRENT
+DISCORD LAMYRENT
